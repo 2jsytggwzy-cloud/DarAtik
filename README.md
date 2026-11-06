@@ -1,1 +1,1 @@
-# DarAtik
+# DarAtiq
